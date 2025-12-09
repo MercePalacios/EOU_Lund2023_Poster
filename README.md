@@ -13,7 +13,7 @@ It is in both html and pdf format.
 
 Moreover, I have attached a copy of my poster in PDF, so you can check it whenever you want :)
 
-Do not hesitate to contact me if you need more information or if you are interested in different aspects of my research.
+Do not hesitate to contact me if you need more information or if you are interested in other aspects of my research.
 
 ------------------------------------------
 Mail: mariamep@ucm.es
